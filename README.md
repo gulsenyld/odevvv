@@ -9,3 +9,4 @@
 ![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_35_07](https://user-images.githubusercontent.com/120250460/206855787-f93b86df-2339-4bb9-937e-44075c19d4f1.png)
 ![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_35_14](https://user-images.githubusercontent.com/120250460/206855810-ae5545aa-e10f-4760-b5e4-27ae6e07a379.png)
 ![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_35_21](https://user-images.githubusercontent.com/120250460/206855839-1411f0b4-806b-4157-8968-05165aa2a852.png)
+[YOUTUBE LİNKİ](https://youtu.be/2BM7yhnJoQA)
