@@ -7,3 +7,4 @@
 ![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_34_47](https://user-images.githubusercontent.com/120250460/206855698-c7c62725-cadb-48d3-824c-4319109386c3.png)
 ![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_34_58](https://user-images.githubusercontent.com/120250460/206855724-af50a0ff-d8be-4ec7-a85d-4c3f210fa7e7.png)
 ![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_35_07](https://user-images.githubusercontent.com/120250460/206855787-f93b86df-2339-4bb9-937e-44075c19d4f1.png)
+![JAVA ECLIPSE ÇALIŞMA - b_src_b_pozıtıfnegatıf java - Eclipse IDE 10 12 2022 13_35_14](https://user-images.githubusercontent.com/120250460/206855810-ae5545aa-e10f-4760-b5e4-27ae6e07a379.png)
